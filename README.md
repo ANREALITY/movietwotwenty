@@ -1,0 +1,2 @@
+# hello-world
+Mein Name ist André Lohmeir. ich kreiere Filme, Fotos, Diashows von und mit Menschen, die diesen Moment des Gefühls vom Leben festhalten wollen. Ich filme, fotografiere und erstelle mit Dir dieses Projekt, um diese wertvollen, energiereichen Emotionen als ein Stück in Kunst deines Kopfkinos zu verwirklichen. Lebe und Verwirkliche dein Gefühl! Kreätivität ist Intelligenz, die Spaß hat!
